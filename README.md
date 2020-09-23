@@ -5,7 +5,7 @@
 
 Thank you for dropping by my page! 
  
-If you would like to see my porfolio site it is located at [jennakoslowski.github.io/](https://jennakoslowski.github.io/)
+If you would like to see my porfolio site it is located at [jkimexploring.com/](https://jkimexploring.com/)
 
 You can also follow along on [Twitter](https://twitter.com/JennaKoslowski) or [Instagram](https://www.instagram.com/jenna.codes/)!
 
